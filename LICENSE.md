@@ -1,4 +1,4 @@
-# 
+# Enhance iMovie for macOS with rare iMovie for macOS Effect | proxy-editing + reverb, the #1 effect. Includes proxy-editing and reverb for a smoother and more creative editing
 
 
 
